@@ -6,7 +6,7 @@ Meu nome é Henrique Lima
 - Eu estou me desenvolvendo no JavaScript 
 - Utilizo esse espaço para a minha organização e, compartilhamento dos meus projetos desenvolvidos 
 
-*** Você pode entrar em contato comigo 📬 
+### Você pode entrar em contato comigo 📬 
 
 @00001106743684sp@al.educacao.sp.gov.br 
 
