@@ -8,7 +8,7 @@ Meu nome é Henrique Lima
 
 ### Você pode entrar em contato comigo 📬 
 
-@00001106743684sp@al.educacao.sp.gov.br 
+@henriklsantos4994@gmail.com
 
 @henrique.do.sax 
 
